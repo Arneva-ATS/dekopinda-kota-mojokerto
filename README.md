@@ -1,1 +1,1 @@
-# dekopinda-kota-mojokerto
+# dekopinda-karanganyar
